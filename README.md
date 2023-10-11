@@ -4,6 +4,6 @@ Preview :-https://youtu.be/gnQYqLfp_XA
 
 Buy:- https://ranjit-store.tebex.io/package/5801107
 
-Price :- $20
+Price :- $16
 
 Open Source
